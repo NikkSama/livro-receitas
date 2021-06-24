@@ -2,6 +2,7 @@
 
 Olá, bem vindo ao livro de receitas 
 
-- Lineuzinho 
+- Lineuzinho assado com batata
 
 
+- Pão recheado com Lineu 
